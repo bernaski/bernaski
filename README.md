@@ -6,4 +6,4 @@ eu camilo sou **campeão** de **judo** 2 vezes seguidas, quero ser psicologo
 
 ![Texto da propriedade alt](wikipedia.png)
 
-https://tenor.com/pt-BR/view/scheming-evil-plan-evil-patrick-star-gif-5437636
+![](https://tenor.com/pt-BR/view/scheming-evil-plan-evil-patrick-star-gif-5437636)
